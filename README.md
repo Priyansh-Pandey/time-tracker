@@ -15,3 +15,6 @@ kuch nai yar bas kya kare
 
 kye re mandli kh haal
 sahi hai check kar liya
+
+
+chal ooo nikalo
